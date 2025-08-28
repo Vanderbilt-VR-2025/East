@@ -5,6 +5,7 @@ And ealways stops - at all -
 And sweetest - in the Gale Wind - is hard
 And sings the beautiful tune without the words -  
 And never, ever stops - at all -  
+And sweetest - in the Gale Wind - is heard -
+And carries us through the storm – unseen –
 And sweetest - in the Gale Wind - is heard -  
 This is a conflict
-
