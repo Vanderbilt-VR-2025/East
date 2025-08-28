@@ -2,5 +2,5 @@
 That perches like a bird in the soul -  
 And sings the beautiful tune without the words -  
 And never, ever stops - at all -  
-And sweetest - in the Gale Wind - is heard -  
-
+And sweetest - in the Gale Wind - is heard -
+And carries us through the storm – unseen –
